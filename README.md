@@ -1,1 +1,0 @@
-# clinicmanagementsystem.github.io
